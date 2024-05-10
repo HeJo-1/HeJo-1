@@ -6,4 +6,5 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on Hack and Hack tools
+- **all codes written are for educational purposes**
 

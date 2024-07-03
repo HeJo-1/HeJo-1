@@ -1,12 +1,10 @@
-# Hello friend
-<img src="https://github.com/HeJo-1/HeJo-1/blob/main/HeJo-01.png" alt="alt text" width="256" height="256">
+# UwU
+![image](https://github.com/HeJo-1/HeJo-1/assets/152224096/2671683a-9909-47e5-9bf0-1cdefa6844e5)
 
-**HeJo-1/HeJo-1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+just 12 years girl
+sadece 12 yaşında  bir kız çocuğu 
 
-- 🔭 I’m currently working on Hack and Hack tools
-- **all codes written are for educational purposes**
 ## my discord
 <a href="https://discord.com/channels/@me/1238768567709601855" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="https://discord.gg/erjt8tV9Fw" height="30" width="40" /></a>
 ## my discord server

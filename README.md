@@ -1,10 +1,9 @@
 # UwU
-![image](https://github.com/user-attachments/assets/6efcc47d-0052-4768-96fe-0ae827c2257a)
+### **just 12 years girl**
 
+### **sadece 12 yaşında  bir kız çocuğu**
+![image](https://github.com/user-attachments/assets/dbfbec34-e9af-435a-ba3d-d2ede40f87fc)
 
-
-just 12 years girl
-sadece 12 yaşında  bir kız çocuğu 
 
 ## my discord
 <a href="https://discord.com/channels/@me/1236607109391454219" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="https://discord.gg/erjt8tV9Fw" height="30" width="40" /></a>

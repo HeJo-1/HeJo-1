@@ -1,5 +1,6 @@
 # UwU
-![image](https://github.com/HeJo-1/HeJo-1/assets/152224096/2671683a-9909-47e5-9bf0-1cdefa6844e5)
+![image](https://github.com/user-attachments/assets/6efcc47d-0052-4768-96fe-0ae827c2257a)
+
 
 
 just 12 years girl

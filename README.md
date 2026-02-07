@@ -1,5 +1,1 @@
-
-<p><img hizala="sol" src="https://github-readme-stats.vercel.app/api/top-langs?username=11001or100111&show_icons=true&locale=tr&layout=compact" alt="11001or100111" /></p>
-
-## my discord
-<a href="https://discord.com/channels/@me/1236607109391454219" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="https://discord.gg/erjt8tV9Fw" height="30" width="40" /></a>
+<img src="https://shitmyweb.free.nf/media/69877db19874a_1770487217.jpeg" alt="cvghj.jpeg" style="max-width: 100%; height: auto; display: block;">

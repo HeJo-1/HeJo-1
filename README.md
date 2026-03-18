@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://shitmyweb.free.nf/media/69877db19874a_1770487217.jpeg" alt="Profile Image" width="450" />
+<img src="https://i.pinimg.com/736x/a7/6d/a3/a76da3aee95df227e86c14e68a3ddd39.jpg" alt="Profile Image" width="450" />
 
 # HeJo-1
 
